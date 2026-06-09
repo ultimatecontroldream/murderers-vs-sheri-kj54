@@ -1,4 +1,4 @@
-#  
+#  murderers vs sheriffs 2 best Script is the best murderers vs sheriffs 2 Script, featuring auto-upgrade and one-hit kill. Safe and powerful for all
 
 
 
